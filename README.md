@@ -187,4 +187,4 @@ Data Analyst | Machine Learning Enthusiast |
 
 📧 Email: gandhitishav@gmail.com
 
-🔗 [LinkedIn](www.linkedin.com/in/tisha-gandhi-994b4a24a)
+🔗 [LinkedIn](https://www.linkedin.com/in/tisha-gandhi-994b4a24a)
